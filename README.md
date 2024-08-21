@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MKapapa
 - 👀 I’m interested in GitHub
 - 🌱 I’m currently learning many things
-- 💞️ I’m looking to collaborate on not much
+- 💞️ I’m looking to collaborate on nothing so far
 - 📫 How to reach me: Visit my house
 - ⚡ Fun fact: facts are fun
 
